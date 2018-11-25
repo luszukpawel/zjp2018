@@ -1,3 +1,3 @@
 # zjp2018
-https://pastebin.com/8cp7N146
+WTF code raport : http://wearedelivr.com/NDependOut2//NDependReport.html#Main
 
